@@ -1,1 +1,1 @@
-Dibuat oleh: Fauza Ahmad Zaidan - D4 Manajemen Informatika"
+Fauza Ahmad Zaidan/23091397144 - D4 Manajemen Informatika"
